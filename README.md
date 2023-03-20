@@ -1,5 +1,5 @@
 
--👋 Hi, I’m @Kanosk
+-👋 Hi, I’m Cándido or @Kanosk in some places
 
 -👀 I’m interested in learn and show all my projects due time.
 
